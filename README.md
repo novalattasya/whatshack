@@ -1,0 +1,2 @@
+# whatshack-1
+GUNAKAN SCRIPT INI DENGAN BIJAK
